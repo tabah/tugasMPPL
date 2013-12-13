@@ -6,4 +6,9 @@ dibuat oleh :
 Nama : Tabah Arwiyanto
 NIM  : G.231.11.0169
 
+ditambahkan oleh :
+
+Nama : Nur Hamid
+NIM  : G.231.11.0103
+
 salam sukses!
