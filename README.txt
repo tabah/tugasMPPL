@@ -11,4 +11,8 @@ ditambahkan oleh :
 Nama : Nur Hamid
 NIM  : G.231.11.0103
 
+penambahan kolaborator terakhir oleh :
+
+Nama : Fachri
+
 salam sukses!
