@@ -13,6 +13,7 @@ NIM  : G.231.11.0103
 
 penambahan Kolaborator terakhir oleh :
 
-Nama : fachri
+Nama : Fachri Khusaini
+NIM  : G.231.11.0096
 
 salam sukses!
